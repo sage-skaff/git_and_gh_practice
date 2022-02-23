@@ -1,0 +1,1 @@
+My main motivation for pursuing a career in software development is obtaining financial independence quickly and efficiently. Another motivation is finding a fulfilling career path that has applicability and adjacency to my hobbies.
